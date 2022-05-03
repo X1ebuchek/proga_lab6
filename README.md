@@ -1,0 +1,1 @@
+# proga_lab6
